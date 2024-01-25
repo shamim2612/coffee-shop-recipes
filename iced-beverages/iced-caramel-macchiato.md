@@ -9,10 +9,15 @@
 - 3/4 cup of 2% milk
 - Ice to fill the glass
 - Caramel sauce
+- a pinch of salt
 
 ## How to Make Iced Caramel Macchiato
 
 ### Step 1
+
+
+
+
 
 - Place vanilla syrup in a glass.
 
